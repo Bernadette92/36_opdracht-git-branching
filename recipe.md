@@ -24,3 +24,5 @@ Preheat oven to 200 C Fan
 In a saucepan boil the potatoes for 15-20 mins. They are cooked when a knife pierces easily to the centre, but not falling apart.
 Transfer the cooked potatoes to a baking tray, gently smash them to crack open slightly by flattening with the base of a glass/mug or pot. Be careful here not to smash them to much but to ensure that they open up. What you are trying to do here is to get them to release some of the starchy insides as when this gets coated in a little oil and is baked it goes so wonderfully crispy. Drizzle the oil mixture evenly over the veg, giving the tray a shake to coat the veg in the oil, sprinkle evenly with the salt and pepper. Roast for 25 – 30 minutes in the preheated oven until golden and super crispy. Serve with a spicy sriracha mayo.
 For the Sriracha mayo simply mix together, this makes a great dip to accompany the crispy potatoes!
+
+### Eet Smakelijk!
